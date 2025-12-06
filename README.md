@@ -6,7 +6,6 @@ I am a sophomore studying Business Administration with a minor in Behavioral Eco
 
 ![professional headshot](beatan26/beatan26/assets/professional_headshot.jpg)
 
-
 ### Connect with me!
 https://www.linkedin.com/in/beaashleytan/
 
